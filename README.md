@@ -12,3 +12,4 @@ Të krijoj një bazë reference për:
 
 ## Kontakt
 Më gjeni këtu në GitHub për ide dhe bashkëpunime.
+Cel. +355 68 631 8191
